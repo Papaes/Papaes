@@ -1,6 +1,6 @@
 # Opa! eu sou o Mateus papaes 🙂
 
-➡️ Cursando Programação no curso em Video 🖥️
+➡️ Cursando Programação no curso em Vídeo 🖥️
 
 ➡️ Um curioso por Programação 👨‍💻
 <div align="center">
